@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @itzz1hashtag
+- 👀 I’m interested in Programming and Learning New things....
+- 🌱 I’m currently learning B.Tech (CSE)
+- 💞️ I’m looking to collaborate on AI Technology
+- 📫 How to reach me FInd yourself :P
